@@ -6,4 +6,4 @@
 ## 姓名：李宛諭
 
 ### 作業繳交
-[期末專題： ten sentences]
+[期末專題： ten sentences](https://youtu.be/sepp7MkSArA?si=_T14yjrHSOaG_Ihz)
